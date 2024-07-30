@@ -2,7 +2,7 @@
 - 👀 I’m interested in designing and development
 - 🌱 I’m currently learning full stack development 
 - 💞️ I’m looking to collaborate on youtube
-- 📫 How to reach me instagram - @rajthaakre
+- 📫 How to reach me instagram - @rajthaakre or @rajthaakrey
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: N/A
 
